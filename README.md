@@ -33,7 +33,7 @@
  <br>
    <img src="https://i.pinimg.com/originals/e6/eb/ef/e6ebeffd2a63d00a7a1f6c94fdc90977.gif" width="200">
 <br>
-   <p> focused on lifestal,bfdi,homestuck & dandys world -w-</p>
+   <p> focused on lifesteal,bfdi,homestuck & dandys world -w-</p>
 <p> one of the helper / creator of equation playground (no playable rigth now)</p>
  
  <br>
