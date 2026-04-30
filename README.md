@@ -34,5 +34,28 @@
    <img src="https://i.pinimg.com/originals/e6/eb/ef/e6ebeffd2a63d00a7a1f6c94fdc90977.gif" width="200">
 <br>
    <p> focused on lifestal,bfdi,homestuck & dandys world -w-</p>
-<p> one of the helper / creator of equation playgroud (no playable rigth now)</p>
+<p> one of the helper / creator of equation playground (no playable rigth now)</p>
  
+ <br>
+ 
+  <img src="https://i.pinimg.com/originals/e6/eb/ef/e6ebeffd2a63d00a7a1f6c94fdc90977.gif" width="200">
+
+  <p> i cant sleep sometimes all of my fault . . . but i try to forget that</p>
+   
+ <br>
+ 
+  <img src="https://i.pinimg.com/originals/3c/3b/04/3c3b04ebf1ec96f1ebc4a0e4bd8564e1.gif" width="200">
+   <br>
+ 
+  <img src="https://i.pinimg.com/originals/e6/eb/ef/e6ebeffd2a63d00a7a1f6c94fdc90977.gif" width="200">
+
+   <br>
+ 
+
+
+ <br>
+ 
+  <img src="https://i.pinimg.com/736x/10/da/1b/10da1bcb0c58d6d170d35042360f3b7f.jpg" width="200">
+
+  <p> i HATE FOUR GRRRR DNI FOUR FANS! /joke  </p>
+
