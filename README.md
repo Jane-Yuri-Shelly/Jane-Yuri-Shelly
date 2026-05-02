@@ -26,7 +26,7 @@
 
   <p> about me ! </p>
     <img sr="https://i.pinimg.com/736x/81/41/56/8141565e6a5d33274edb641322e8eab8.jpg" width="200">
-<p> the only friend i have w git is . . .  @snowflak3ss  ♡ </p>
+<p> GOO FOLLOW  @snowflak3ss & @calc0maniia THEY ARE SOO COOL!!  </p>
 
 <p> if you want 2 see me , im on safe server or safe spanish ♡  </p>    <img src="https://watermelon.crd.co/assets/images/gallery01/7e30f241.png?v=75c8e322" width="200">
 
