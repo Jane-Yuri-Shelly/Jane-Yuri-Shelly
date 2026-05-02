@@ -6,7 +6,7 @@
     </font>
   </samp>
 </div>
-  <img src="https://i.pinimg.com/736x/5d/44/f5/5d44f54a3bd1c230f9e95761d7191ab0.jpg" alt="Shelly Banner" width="100%">
+  <img src="https://i.pinimg.com/736x/5d/44/f5/5d44f54a3bd1c230f9e95761d7191ab0.jpg" alt="Shelly Banner" width="63%">
 </p>
 <div align="center">
   <!-- Aquí va tu texto -->
