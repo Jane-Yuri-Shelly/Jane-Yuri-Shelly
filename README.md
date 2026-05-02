@@ -28,7 +28,7 @@
     <img sr="https://i.pinimg.com/736x/81/41/56/8141565e6a5d33274edb641322e8eab8.jpg" width="200">
 <p> GOO FOLLOW  @snowflak3ss & @calc0maniia THEY ARE SOO COOL!!  </p>
 
-<p> if you want 2 see me , im on safe server or safe spanish ♡  </p>    <img src="https://watermelon.crd.co/assets/images/gallery01/7e30f241.png?v=75c8e322" width="200">
+<p> if you want 2 see me , im on safe server or safe spanish   </p>    <img src="https://watermelon.crd.co/assets/images/gallery01/7e30f241.png?v=75c8e322" width="32">
 
  <br>
    <img src="https://watermelon.crd.co/assets/images/gallery21/f4867271.gif?v=75c8e322" width="200">
@@ -59,3 +59,8 @@
 
   <p> i HATE FOUR GRRRR DNI FOUR FANS! /joke  </p>
 
+<p> cuds piles comf <3 </p>
+  
+<br>
+
+ <img src="https://i.pinimg.com/736x/bc/42/6b/bc426beac6b2fb45f7b7020e9bce24c5.jpg" width="200">
