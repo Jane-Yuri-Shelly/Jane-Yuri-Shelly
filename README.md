@@ -3,6 +3,13 @@
 
  <img width="900" height="354" alt="tumblr_c1624b5679257c8af82ce0273eae44b4_ae33fc3d_540" src="https://github.com/user-attachments/assets/d5a1846c-19b6-40c9-8b1b-02d0717aa98c" />
 
-<img width="301" height="60" alt="text" src="https://github.com/user-attachments/assets/88977a2c-4d5e-48f6-840c-b8a6442792a6" />
 
-wipp gelp!!
+<br>
+
+<img width="900" height="50" alt="tumblr_aba29c21e83ddcb05bbbeea50058abac_0f3c4960_400" src="https://github.com/user-attachments/assets/27f513be-3d35-408e-a136-5806746bceb9" />
+
+
+wip gahhh
+
+                  
+
