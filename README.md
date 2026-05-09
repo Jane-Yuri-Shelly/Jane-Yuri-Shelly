@@ -1,15 +1,23 @@
-<img width="900" height="254" alt="tumblr_a8cfba494de082e9239ae63ca2fd3129_8865e91f_540" src="https://github.com/user-attachments/assets/e3a3819a-1d00-437f-bb8e-8fc2df9c3cd9" />
+<img width="100" height="54" alt="image" src="https://github.com/user-attachments/assets/43c158b8-4f42-47f7-88ac-7c82592b99f1" /><img width="100" height="54" alt="image" src="https://github.com/user-attachments/assets/9ad1be7d-9308-403f-bc95-8bcb00983413" /><img width="100" height="54" alt="image" src="https://github.com/user-attachments/assets/4754b9bb-7995-4227-8f61-8e64491cbb1e" /><img width="100" height="54" alt="image" src="https://github.com/user-attachments/assets/14039b74-12bb-4f26-9e45-15d84d36f78d" /><img width="100" height="54" alt="image" src="https://github.com/user-attachments/assets/a88175a4-ae2e-4722-b3ab-5b7079fbf1b8" />
 
 
- <img width="900" height="354" alt="tumblr_c1624b5679257c8af82ce0273eae44b4_ae33fc3d_540" src="https://github.com/user-attachments/assets/d5a1846c-19b6-40c9-8b1b-02d0717aa98c" />
+
+               hii guys its mee, kanayaaaa
 
 
-<br>
 
-<img width="900" height="50" alt="tumblr_aba29c21e83ddcb05bbbeea50058abac_0f3c4960_400" src="https://github.com/user-attachments/assets/27f513be-3d35-408e-a136-5806746bceb9" />
+<img width="240" height="336" alt="image" src="https://github.com/user-attachments/assets/d6f19604-3f30-4af1-9b89-00e5867c0903" />
 
 
-wip gahhh
 
-                  
+
+
+                         spam follower 2 cool people or with pretty github (NO CHECKING GITHUBS!)
+
+
+
+
+
+<img width="735" height="509" alt="download (79)" src="https://github.com/user-attachments/assets/47301321-d478-4ce5-a63d-a751bdb881f0" />
+
 
