@@ -12,7 +12,7 @@
 
 
 
-                         spam follower 2 cool people or with pretty github (NO CHECKING GITHUBS!)
+                        the ponytown kanaya lololol
 
 
 
