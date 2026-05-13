@@ -74,7 +74,7 @@
 
 
 
-                          just an chill girl.
+                         esp/en talker.
 
 
 
