@@ -54,11 +54,22 @@
 
 
 
+<br> 
+
+
+me and gang    [@calc0maniia](https://github.com/calc0maniia) [@snowflak3ss](https://github.com/snowflak3ss) [@Pennysforgottenshoe](https://github.com/Pennysforgottenshoe)
+
+
+<br>
+
+<img width="400" height="203" alt="tumblr_83929e5c8f7899ba06ee2b33ab4ee3b1_2673db96_400" src="https://github.com/user-attachments/assets/fba8041e-7698-4fdc-b631-a094dbfd4af8" />
+
+
 
 <br>
 
 
-                                credits 2 all the artist of the stamps,divider and widget <3
+                                credits 2 all the artists of the stamps,divider and widget <3
 
 <img width="33" height="21" alt="tumblr_ce291f2c104e1ba583f59af98e537d0a_826ef3e5_75" src="https://github.com/user-attachments/assets/e58cd589-1df7-40b6-a55b-1d08bc5db2ce" />
 
@@ -68,4 +79,4 @@
 <br>
 
 
-<img width="552" height="691" alt="tumblr_fd484217036f641830a9e1d7e606a46c_46439993_640" src="https://github.com/user-attachments/assets/7d8ca408-f932-4270-a94e-527bc6a7d749" />
+<img width="900" height="300" alt="tumblr_41a28e7bdbebee458c6cd5ac6e714fb8_61813d79_400" src="https://github.com/user-attachments/assets/e4ed5975-196f-412a-9d15-188a94049136" />
